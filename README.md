@@ -1,0 +1,2 @@
+# Intelligence
+god game
